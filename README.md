@@ -13,3 +13,13 @@
 12. 有恩不報未算差.....有仇不報正人渣
 13. 傻仔就好似便利店, 梗有一兩個係附近
 14. 明知山有虎，偏要去露營
+
+Fai sir: Call him to ask if he wants to know more about business
+Tong Yu: Tell him more detail how to use zoom
+Arthur: no response
+Shing: tell him not to use his existing purifiers
+Tat gor: followup
+權權 食飯
+田雞：
+Fung: time
+強仔： 食飯
